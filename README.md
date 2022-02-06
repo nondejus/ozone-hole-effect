@@ -1,2 +1,0 @@
-# ozon-layer-effect
-haloperidol
